@@ -1,1 +1,0 @@
-# Saveprogram-image-resource
